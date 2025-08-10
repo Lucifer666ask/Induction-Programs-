@@ -94,7 +94,7 @@ Dr. Jasvir Singh Grewal gave us lecture on NSS. The session was very energetic a
 ## Date - 8 August 2025
 ### Introduction to engeneering drawings
 
-Professor Manmohan singh topd us about perspective of drawing in engineering and made us aware about the marking scheme in MST and EST.
+Professor Manmohan singh told us about perspective of drawing in engineering and made us aware about the marking scheme in MST and EST.
 
 
 After the engeneering drawing we had a workshop of carpentry in which professor told us about the different woods found in different parts of country it was very interactive session.
